@@ -14,7 +14,7 @@
 ## 🧾 Certificados
 
 ![image](https://github.com/user-attachments/assets/c8837ea1-e1bd-44b4-a7ab-85f2ee2916a7)
-![image](https://github.com/user-attachments/assets/04b8f8c1-ab9f-4e8e-a420-be67034c802e)
+![image](https://github.com/user-attachments/assets/983db357-4df9-4caf-ada4-2baf69712f4b)
 
 
 
