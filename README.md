@@ -31,4 +31,4 @@
 ## 🔗 Contato
 
 - [LinkedIn](https://www.linkedin.com/in/wallace-gabriel-silva/)
-- [Email]:wallacegssilva11@gmail.com
+- [Email]_wallacegssilva11@gmail.com
